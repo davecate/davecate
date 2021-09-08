@@ -1,5 +1,7 @@
 Merchant's Law: Loss of files = loss of income
+
 ——
+
 dccate@gmail.com | Dave Cate on slack/fb/linkedin | @davecatelife on ig
 
 <!---
