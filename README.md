@@ -2,7 +2,7 @@ Merchant's Law: Loss of files = loss of income
 
 ——
 
-dccate@gmail.com | Dave Cate on slack/fb/linkedin | @davecatelife on ig
+dccate@gmail.com | dave cate on slack/fb/linkedin | @davecatelife on ig
 
 <!---
 davecate/davecate is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
